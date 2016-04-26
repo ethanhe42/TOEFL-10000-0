@@ -12,9 +12,10 @@
 [怎样背英语单词才高效？](https://www.zhihu.com/question/19580414/answer/83110677)  
 [如何高效背诵托福单词？](https://www.zhihu.com/question/19823754/answer/83032633)  
 [在 3 个月之内准备托福，想要达到 100+，有哪些方法建议?](https://www.zhihu.com/question/27244993/answer/83030807)  
+  
 作者：何宜晖  
 QQ 535505132  
-微信 he535505132
+微信 he535505132  
 Email: yihuihe@foxmail.com  
   
 
