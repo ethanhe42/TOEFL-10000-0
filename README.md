@@ -7,6 +7,7 @@
 [压缩包4](https://github.com/yihui-he/TOEFL-10000-4/archive/master.zip)
 [压缩包5](https://github.com/yihui-he/TOEFL-10000-5/archive/master.zip)  
 单词讲义在压缩包5里面，[单词讲义](https://github.com/yihui-he/TOEFL-10000-5)  
+文字转音频软件在压缩包5里面，[朗读女](https://github.com/yihui-he/TOEFL-10000-5/raw/master/langdunv.zip)  
 此内容属于下列知乎答案  
 [怎样背英语单词才高效？](https://www.zhihu.com/question/19580414/answer/83110677)  
 [如何高效背诵托福单词？](https://www.zhihu.com/question/19823754/answer/83032633)  
